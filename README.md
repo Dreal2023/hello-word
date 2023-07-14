@@ -4,3 +4,5 @@ my name is halima abdi
 iam 30 year s old 
 i live in plano,tx 
 i have 3 kittens
+
+music and reading novels are my hobies....
